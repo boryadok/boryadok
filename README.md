@@ -7,4 +7,4 @@
 - ⚡ Fun factory kuznica gamerov notion
 - the end of made and hade
 - and handle present
-- new battery
+- new battery NFT
