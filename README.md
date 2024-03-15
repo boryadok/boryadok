@@ -7,6 +7,6 @@
 - ⚡ Fun factory kuznica gamerov notion
 - the end of made and hade
 - and handle present
-- new battery NFT scroll mainnet
+- new battery NFT scroll mainnet and testnet
 - char imagination bera bera
 - 28 poaps on coat oat galxe
