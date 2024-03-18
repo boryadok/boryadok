@@ -5,7 +5,7 @@
 - 📫 How to reach me together rain
 - 😄 Pronouns: pronos
 - ⚡ Fun factory kuznica gamerov notion
-- the end of made and hade
+- the end of made and hade boke
 - and handle present
 - new battery NFT scroll mainnet and testnet
 - char imagination bera bera
