@@ -9,4 +9,4 @@
 - and handle present
 - new battery NFT scroll mainnet and testnet
 - char imagination bera bera
-- 28 poaps on coat oat galxe
+- 28 poaps on coat oat galxe zklink
