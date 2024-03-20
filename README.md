@@ -2,7 +2,7 @@
 - 👀 I’m interested in copm
 - 🌱 I’m currently learning ingeneering...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me together rain
+- 📫 How to reach me together rain proral zub
 - 😄 Pronouns: pronos
 - ⚡ Fun factory kuznica gamerov notion
 - the end of made and hade boke
