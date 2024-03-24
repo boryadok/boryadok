@@ -6,7 +6,7 @@
 - 😄 Pronouns: pronos
 - ⚡ Fun factory kuznica gamerov notion
 - the end of made and hade boke
-- and handle present
+- and handle present X
 - new battery NFT scroll mainnet and testnet
 - char imagination bera bera
 - 28 poaps on coat oat galxe zklink
