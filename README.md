@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @boryadok !!!
-- 👀 I’m interested in copm form
+- 👀 I’m interested in copm forms 17
 - 🌱 I’m currently learning ingeneering...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me together rain proral zub
