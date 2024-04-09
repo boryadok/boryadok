@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ingeneering...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me together rain proral zub
-- 😄 Pronouns: pronosit mimo memo
+- 😄 Pronouns: pronosit mimo memoland
 - ⚡ Fun factory kuznica gamerov notion
 - the end of made and hade boke spoke
 - and handle present Xman
