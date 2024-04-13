@@ -6,7 +6,7 @@
 - 😄 Pronouns: pronosit mimo memoland
 - ⚡ Fun factory kuznica gamerov notion
 - the end of made and hade boke spoke
-- and handle present Xman worm
+- and handle present Xman worms 2002 year
 - new battery NFT scroll mainnet and testnet
 - char imagination bera bera blochain
 - 28 poaps on coat oat galxe zklink
