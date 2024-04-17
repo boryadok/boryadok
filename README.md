@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on sales ...
 - 📫 How to reach me together rain proral zub
 - 😄 Pronouns: pronosit mimo memoland
-- ⚡ Fun factory kuznica gamerov notion
+- ⚡ Fun factory kuznica gamerov notion red
 - the end of made and hade boke spoke
 - and handle present Xman worms 2002 year
 - new battery NFT scroll mainnet and testnet
