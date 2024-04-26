@@ -12,4 +12,4 @@
 - 28 poaps on coat oat galxe zklink
 - red alert 1999 baranka taxy
 - proxy appolo
-- i very like PS4
+- i very like PS4 and sega
