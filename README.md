@@ -11,5 +11,5 @@
 - char imagination bera bera blochain pro plans
 - 28 poaps on coat oat galxe zklink
 - red alert 1999 baranka taxy
-- proxy appolo 17
+- proxy appolo 17 zksynk
 - i very like PS4 and sega space
