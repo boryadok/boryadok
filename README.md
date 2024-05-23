@@ -11,7 +11,7 @@
 - char imagination bera bera blochain pro plans
 - 28 poaps on coat oat galxe zklink
 - red alert 1999 baranka taxy star
-- proxy appolo 17 zksynk network
+- proxy appolo 17 zksynk network table
 - i very like PS4 and sega space travel
 - colateral pine kraken ship places
 - 09 points security battle raffle booble
