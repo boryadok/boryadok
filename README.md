@@ -13,5 +13,5 @@
 - red alert 1999 baranka taxy star
 - proxy appolo 17 zksynk network table
 - i very like PS4 and sega space travel
-- colateral pine kraken ship places
+- colateral pine kraken ship places trap
 - 09 points security battle raffle booble
