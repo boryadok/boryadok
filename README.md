@@ -10,7 +10,7 @@
 - new battery NFT scroll mainnet and testnet
 - char imagination bera bera blochain pro plans
 - 28 poaps on coat oat galxe zklink
-- red alert 1999 baranka taxy star
+- red alert 1999 baranka taxy star together
 - proxy appolo 17 zksynk network table
 - i very like PS4 and sega space travel
 - colateral pine kraken ship places trap
