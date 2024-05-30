@@ -7,7 +7,7 @@
 - ⚡ Fun factory kuznica gamerov notion red
 - the end of made and hade boke spoke car
 - and handle present Xman worms 2002 year
-- new battery NFT scroll mainnet and testnet
+- new battery NFT scroll mainnet and testnet voyage
 - char imagination bera bera blochain pro plans
 - 28 poaps on coat oat galxe zklink project
 - red alert 1999 baranka taxy star together
