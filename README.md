@@ -16,3 +16,4 @@
 - colateral pine kraken ship places trap
 - 09 points security battle raffle booble
 - memory card safety planet boll spot
+- legend
