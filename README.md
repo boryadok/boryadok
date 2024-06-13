@@ -12,7 +12,7 @@
 - 28 poaps on coat oat galxe zklink project
 - red alert 1999 baranka taxy star together
 - proxy appolo 17 zksynk network table speacher
-- i very like PS4 and sega space travel
+- i very like PS4 and sega space travel pencil
 - colateral pine kraken ship places trap
 - 09 points security battle raffle booble
 - memory card safety planet boll spot
