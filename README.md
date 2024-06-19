@@ -9,7 +9,7 @@
 - and handle present Xman worms 2002 year zakaz
 - new battery NFT scroll mainnet and testnet voyage
 - char imagination bera bera blochain pro plans
-- 28 poaps on coat oat galxe zklink project
+- 28 poaps on coat oat galxe zklink project sparrow
 - red alert 1999 baranka taxy star together
 - proxy appolo 17 zksynk network table speacher
 - i very like PS4 and sega space travel pencil
