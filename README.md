@@ -16,4 +16,4 @@
 - colateral pine kraken ship places trap nodes
 - 09 points security battle raffle booble
 - memory card safety planet boll spot
-- legend game
+- legend game nft
