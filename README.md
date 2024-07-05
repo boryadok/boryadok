@@ -6,7 +6,7 @@
 - 😄 Pronouns: pronosit mimo memoland pull
 - ⚡ Fun factory kuznica gamerov notion red
 - the end of made and hade boke spoke car pump it
-- and handle present
+- and handle present thanks
 - new battery NFT scroll mainnet and testnet voyage
 - char imagination bera bera blochain pro plans
 - 28 poaps on coat oat galxe zklink project sparrow
