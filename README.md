@@ -13,7 +13,7 @@
 - red alert 1999 baranka taxy star together
 - proxy appolo 17 zksynk off network table speacher
 - i very like PS4 and sega space travel pencil
-- colateral pine kraken ship places trap nodes
+- colateral pine kraken ship places trap nodes tron
 - 09 points security battle raffle booble perent
 - memory card safety planet boll spot taste
 - legend game nft retry gift meta card ufo
