@@ -16,4 +16,4 @@
 - colateral pine kraken ship places trap nodes tron
 - 09 points security battle raffle booble perent
 - memory card safety planet boll spot taste
-- legend game nft retry gift meta card ufo
+- legend game nft retry gift meta card ufo legat
